@@ -4,5 +4,5 @@
 
 ![그림1](https://github.com/user-attachments/assets/b0faeb47-4490-44d6-a1c3-1308d7117f1d)
 
+![KakaoTalk_20241127_123321362](https://github.com/user-attachments/assets/dcb0062c-12ea-40af-a73e-7cac770cb93a)
 
-![image](https://github.com/user-attachments/assets/5cf65866-f672-4b6b-8fa7-69be94f441c6)
